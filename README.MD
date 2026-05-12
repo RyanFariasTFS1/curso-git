@@ -1,2 +1,3 @@
-vou passar 
-eu vou estudar
+vou passar
+vou passsar 
+vou passar nessa porra 
